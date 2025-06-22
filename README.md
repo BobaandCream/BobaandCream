@@ -1,4 +1,4 @@
-hi im Boba and i play bloxd
+hiiii :DDD
 
 Bsfs: Vanilla_Sage aka Lily_Cheng, Rose, dEaD_sTaR, _banana_ aka banana:)
 Quadrio: Lily_Cheng, Rose, dEaD_sTaR, BobaandCream (me)
